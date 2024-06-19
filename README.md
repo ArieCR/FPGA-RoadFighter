@@ -1,2 +1,2 @@
 WIP
-link to projec video: https://youtu.be/ypDOtaWUy8Q
+link to project video: https://youtu.be/ypDOtaWUy8Q
